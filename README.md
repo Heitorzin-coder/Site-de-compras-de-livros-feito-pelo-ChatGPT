@@ -1,1 +1,1 @@
-Esse site NÃO foi feito por mim, e sim pelo chatGPT, então esse site foi programado por uma IA e não um humano, apenas fiz esse site porque estava no tédio e pensei em escrever um prompt para o chatGPT o fizesse.
+Esse site NÃO foi feito por mim, e sim pelo chatGPT, então esse site foi programado por uma IA e não um humano, apenas fiz esse site porque estava no tédio e pensei em escrever um prompt para o chatGPT.
